@@ -1,1 +1,1 @@
-mindex sayn tyfhktgjd
+mindex sayn1 tyfhktgjd
