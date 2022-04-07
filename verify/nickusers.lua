@@ -1,1 +1,1 @@
-1
+mindex sayn tyfhktgjd
