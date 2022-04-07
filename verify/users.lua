@@ -1,1 +1,0 @@
-mindexx sayn sadasdw
