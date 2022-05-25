@@ -1,1 +1,1 @@
-fenomen4ikk mindexx  tyfhktgjd
+ sayn fenomen4ikk mindexx  tyfhktgjd
