@@ -1,2 +1,1 @@
-0200x86windows_ntamd6421amd64family21model2stepping0,authenticamdandrew 4501x86windows_ntamd646intel64family6model69stepping1,genuineintelmindexx
- fenomen4ikk1706x86windows_nt sayn0200x86windows_nt mindexx4501x86windows_nt       13785dheth
+      13785dheth
