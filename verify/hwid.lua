@@ -1,1 +1,1 @@
- wswrwer2344
+lister-pc2a07x86windows_ntamd646intel64family6model42stepping7,genuineintel194.28.181.26uuidffffffff-ffff-ffff-ffff-ffffffffffffoa3xoriginalproductkey wswrwer2344
